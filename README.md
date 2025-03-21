@@ -1,3 +1,4 @@
 # Presentación
 
 Hola, mi nombre es **Franco Agustín Valli**, tengo 19 años y soy de San Pedro (Buenos Aires) aunque actualmente resido en Campana.
+En mi tiempo libre me gustar ir al gimnasio y aprender cosas nuevas. 
